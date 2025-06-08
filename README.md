@@ -23,7 +23,7 @@
 
 <p>Ogni risorsa può essere generata all’istante, senza limiti giornalieri o richieste di pagamento. I <strong>trucchi per Hence Road</strong> funzionano in modo fluido e sicuro, senza rischio di ban o sospensioni, grazie alla protezione anti-rilevamento integrata. Le risorse verranno automaticamente aggiunte al tuo account in pochi secondi dopo l’attivazione del generatore.</p>
 
-# 🔴🔴 **[👉 Clicca Qui per Scaricare i Trucchi per Hence Road](https://tinyurl.com/tripdeigiochi)** 🔴🔴
+# 🔴🔴 **[👉 Clicca Qui per Scaricare i Trucchi per Hence Road](https://tinyurl.com/manacontroller)** 🔴🔴
 
 <h2>Funzionalità dei trucchi per Hence Road</h2>
 
@@ -85,7 +85,7 @@ Sì, il nostro team aggiorna costantemente il generatore per garantire compatibi
 
 <p><strong>Scarica ora i trucchi per Hence Road</strong> e rivoluziona la tua esperienza di gioco. Clicca sul pulsante qui sotto e inizia subito. Il divertimento è garantito!</p>
 
-# 🔴🔴 **[👉 Clicca Qui per Scaricare i Trucchi per Hence Road](https://tinyurl.com/tripdeigiochi)** 🔴🔴
+# 🔴🔴 **[👉 Clicca Qui per Scaricare i Trucchi per Hence Road](https://tinyurl.com/manacontroller)** 🔴🔴
 
 <h2>Perché i trucchi per Hence Road sono davvero fondamentali per ogni giocatore</h2>
 
